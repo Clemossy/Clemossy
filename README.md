@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning java and python 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me ...+254706651
+- 📫 How to reach me +254706651367
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ... I'm a geek
 
